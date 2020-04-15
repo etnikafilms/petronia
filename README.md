@@ -1,2 +1,0 @@
-# petronia
-recurso educativo
